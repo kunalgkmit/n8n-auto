@@ -1,1 +1,1 @@
-just a simple cpp file ok hell nahh nnn
+just a simple cpp file ok hell nahh nnn good to go
